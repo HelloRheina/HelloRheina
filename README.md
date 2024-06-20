@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Rheina
+- 👀 I’m interested in fun webs
+- 🌱 I’m currently learning web development and machine learning
+- 💞️ I’m looking to collaborate on projects
+- 📫 How to reach me rheinatrudy@gmail.com
+- ⚡ Fun fact: I'm secretly a weeb
